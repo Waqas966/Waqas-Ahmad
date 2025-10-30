@@ -1,2 +1,2 @@
-# Waqas-Ahmad
+# Waqas Ahmad
 Don't specify
